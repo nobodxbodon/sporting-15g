@@ -1,6 +1,18 @@
 
 ## 2024
 
+09/21
+
+[ Santa Clara Sporting 15G Green vs Los Gatos United 14G ](https://www.youtube.com/watch?v=AgHO2FfBt-4)
+
+09/15
+
+[Santa Clara Sporting vs OV Toros FC 15G Black](https://www.youtube.com/watch?v=jteqKOFsHTw)
+
+09/06
+
+[Santa Clara Sporting 15G Green vs Santa Clara Sporting 14G White](https://www.youtube.com/watch?v=gMUlmlLj9BY)
+
 08/24
 
 [ Santa Clara Sporting 15G Green vs Allstars United 14G Red ](https://www.youtube.com/watch?v=RBdE0woUGaw)
